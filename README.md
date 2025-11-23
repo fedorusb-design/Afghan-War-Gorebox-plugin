@@ -1,1 +1,0 @@
-# Afghan-War-Gorebox-plugin
